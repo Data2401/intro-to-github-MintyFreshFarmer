@@ -4,7 +4,6 @@ hifjdhspifbdabfdsa
 gfds
 gf
 ds
-gfds
-+QWE=THYU\\
+
 
 
